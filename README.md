@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Khushisirohi
 - 👀 I’m interested in everything new
-- 🌱 I’m currently learning machine learni6
+- 🌱 I’m currently learning machine learning
 - 💞️ How to reach me? Text me on LinkedIn
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm extremely creative and basically a fashion encyclopedia 
